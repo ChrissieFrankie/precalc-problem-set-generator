@@ -15,3 +15,5 @@ i went unconcious after falling off of my e-bike in texas, lost some brain cells
 because of ai/bi-pedal robots i want to complete a computer engineering degree to build cool shit
 
 ![Jenny](./Jenny.png)
+
+no homo ^-^
